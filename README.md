@@ -10,3 +10,7 @@ American: China stole this from us.
 Christianity: China stole our heaven.
 
 American be: noooo we say China say we say we say we stole things.
+
+# Russkie Putin is determined to shoot Nukes the moment he invaded Ukraine
+
+Already Urkainian is "Jewish"
